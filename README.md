@@ -1,0 +1,1 @@
+# qrCode-Receipt-val-GftKk2A2ou-5cPSvVkJ_cg7SL0YPHZzdz_CT-aSVTJTw4
